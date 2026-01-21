@@ -16,7 +16,7 @@ We aim to respond to all emails within 2-3 business days.
 ### Phone
 For urgent matters or direct assistance, you can reach us by phone:
 
-**+358505329707**
+**+358505329706**
 
 Please note that phone support is available during business hours. For non-urgent matters, we recommend using email for faster response times.
 

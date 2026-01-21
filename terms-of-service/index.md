@@ -165,7 +165,7 @@ These Terms, together with our Privacy Policy, constitute the entire agreement b
 If you have any questions about these Terms of Service, please contact us:
 
 - **Email**: [maqasidai@gmail.com](mailto:maqasidai@gmail.com)
-- **Phone**: +358505329707
+- **Phone**: +358505329706
 
 ## 18. Acknowledgment
 
